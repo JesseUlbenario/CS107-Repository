@@ -1,7 +1,7 @@
 CS107 Information Management 
 Group Members:
 Kisha Ann Joy M. Sanchez
-Drew dwyabe B. Sultan
+Drew dwyane B. Sultan
 Jesse Nicole B. Ulbenario
 
 One Drive (containing photos and documentation)
